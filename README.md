@@ -2,14 +2,6 @@ Get **$5.00 OFF** *SpotUp* with my link
 
 Spotify Premium with a one-time payment
 
-<a href="https://spotup.co/?ref=joltz">
-  <img src="https://upload.wikimedia.org/wikipedia/commons/8/84/Spotify_icon.svg" width="35">
-</a>
-&nbsp; Get Spotify Premium with SpotUp
+<a href="https://spotup.co/?ref=joltz"><img src="https://upload.wikimedia.org/wikipedia/commons/8/84/Spotify_icon.svg" width="35"></a> Get Spotify Premium with SpotUp
 
-<br>
-
-<a href="https://www.youtube.com/watch?v=WNsWyyVbYas">
-  <img src="https://upload.wikimedia.org/wikipedia/commons/e/ef/Youtube_logo.png" width="45">
-</a>
-&nbsp; Watch the YouTube Video
+<a href="https://www.youtube.com/watch?v=WNsWyyVbYas"><img src="https://upload.wikimedia.org/wikipedia/commons/e/ef/Youtube_logo.png" width="45"></a> Watch the YouTube Video
