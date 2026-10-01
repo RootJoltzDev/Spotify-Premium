@@ -8,14 +8,14 @@ Use code **JOLTZ** at checkout to get a discount while also supporting me.
 
 ### 💰 Get $5.00 OFF
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/8/84/Spotify_icon.svg" width="35"> https://spotup.co/?ref=joltz
+https://spotup.co/?ref=joltz
 
 Or simply enter **JOLTZ** at checkout!
 
 ### <img src="https://cdn.simpleicons.org/discord/5865F2" width="24"> SPOTUP Discord Server
 
-<img src="https://cdn.simpleicons.org/discord/5865F2" width="35"> https://discord.com/invite/89eDKKQpYg
+https://discord.com/invite/89eDKKQpYg
 
 ### <img src="https://cdn.simpleicons.org/youtube/FF0000" width="24"> YouTube Video
 
-<img src="https://cdn.simpleicons.org/youtube/FF0000" width="45"> https://www.youtube.com/watch?v=WNsWyyVbYas
+https://www.youtube.com/watch?v=WNsWyyVbYas
